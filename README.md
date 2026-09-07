@@ -45,6 +45,10 @@ Sul nostro sito puoi consultare le collezioni disponibili, le informazioni aggio
 
 ## Guide e risorse
 
+### Guide BagFino
+
+- [Come scegliere una borsa da viaggio per aereo](guide/borsa-da-viaggio-aereo.md)
+
 Questo repository può essere utilizzato per pubblicare risorse informative dedicate al mondo delle borse e degli accessori, ad esempio:
 
 * Guide alla scelta della borsa
