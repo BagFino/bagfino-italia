@@ -31,9 +31,9 @@ Consulta il catalogo e scopri le ultime proposte direttamente sul **[sito uffici
 Ideale per weekend, vacanze e spostamenti, AeroMax Travel fa parte della collezione BagFino dedicata agli accessori da viaggio.
 
 ✈️ **Scopri BagFino AeroMax Travel:**
-👉 [BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-)
+👉 [BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-bag)
 
-Per maggiori informazioni, caratteristiche e disponibilità del prodotto, visita la pagina ufficiale di **[BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-)**.
+Per maggiori informazioni, caratteristiche e disponibilità del prodotto, visita la pagina ufficiale di **[BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-bag)**.
 
 🌐 [Visita BagFino](https://bagfino.com/)
 
