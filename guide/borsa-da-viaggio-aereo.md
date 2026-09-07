@@ -36,7 +36,7 @@ Manici, tracolle e altre soluzioni di trasporto possono fare una grande differen
 
 ## 4. Una soluzione per weekend e viaggi
 
-Per chi cerca una soluzione BagFino dedicata ai viaggi, è possibile scoprire **[BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-)**.
+Per chi cerca una soluzione BagFino dedicata ai viaggi, è possibile scoprire **[BagFino AeroMax Travel](https://bagfino.com/products/bagfino-aeromax-travel-bag)**.
 
 AeroMax Travel è pensata per chi desidera combinare organizzazione, praticità e stile durante gli spostamenti.
 
@@ -76,6 +76,6 @@ Se prevedi di viaggiare in aereo, verifica sempre separatamente le regole aggior
 
 Se stai cercando una nuova soluzione per organizzare i tuoi viaggi, puoi consultare caratteristiche, immagini e disponibilità direttamente sulla pagina ufficiale:
 
-👉 **[Scopri BagFino AeroMax Travel su BagFino](https://bagfino.com/products/bagfino-aeromax-travel-)**
+👉 **[Scopri BagFino AeroMax Travel su BagFino](https://bagfino.com/products/bagfino-aeromax-travel-bag)**
 
 Per scoprire altri prodotti e novità del brand, visita **[BagFino](https://bagfino.com/)**.
